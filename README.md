@@ -1,1 +1,11 @@
-# Kill_frnd_stg2
+# Kill Kill Kill
+
+Killing friends....
+
+
+
+
+
+
+
+It's my job.
